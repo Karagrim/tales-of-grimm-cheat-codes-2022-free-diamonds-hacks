@@ -1,2 +1,5 @@
-# tales-of-grimm-cheat-codes-2022-free-diamonds-hacks
-Tales of Grimm Cheat Codes 2022 free diamonds Hacks tier guide
+# Tales of Grimm Cheats Codes 2022 free diamonds Hacks tier guide
+
+Tales of Grimm Cheat Codes 2022 free diamonds Hacks tier guide - While it sounds interesting to cram as many abilities as possible into your deck, using only a few (say, one or two) keywords can create a more stable game plan and reduce your chances of winning. An obvious exception to the rule "don't fill your deck with multiple copies of the same card" is bonded cards. Binding ability will trigger if and only if you already have a copy of the same card in your game field. Ask yourself if there is a card that provides similar (if not better) value, or if the binding ability of the card is worth the space of the card. Another concept learned in tales of Grimm and most other TCGS is card advantage. Simply put, card advantage refers to how much advantage you have over your opponent according to the number of cards you have. The more cards you have, the more options you can choose, and the greater the advantage of your card.
+
+<a href="https://windmod.icu/tales-of-grimm/">Try now</a>
